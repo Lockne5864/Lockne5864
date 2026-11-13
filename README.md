@@ -27,3 +27,4 @@ I'm particularly interested in Artificial Intelligence, Game Development, and Fu
 ## 📫 Connect
 
 - [GitHub](https://github.com/Lockne5864)
+- [Linkedin](https://www.linkedin.com/in/davi-darroit-dutra-331624386/)
